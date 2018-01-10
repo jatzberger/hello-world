@@ -1,3 +1,3 @@
-# Old-Timey-humans. Nah.
+# Old-Timey-humans. Yah.
 Wort Wort.
 
